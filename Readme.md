@@ -23,12 +23,14 @@ Problem-Solving, Critical Thinking, Communication, Mentorship, Time Management, 
 -----------------------------------------------------
 
 Email: m.a.ahmadi.dev@gmail.com
-
-Phone: +98 9991373072 
+Phone: 98 999 137 3072
+WhatsApp: https://wa.me/989991373072 
+linkedin: www.linkedin.com/in/ma-ahmadi-dev
 
 ------------------------------------------------------
 
 english diploma img 
 https://github.com/Amin2003713/English-diploma/blob/main/IMG_20250710_224652.jpg
+
 my resume file
 https://github.com/Amin2003713/English-diploma/blob/main/M.A.A-resume.pdf
